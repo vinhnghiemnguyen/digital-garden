@@ -16,3 +16,5 @@ Tu để trở thành thánh, tu để thàn thánh *nguy hiểm*
 Mỗi hành động đang âm thầm đưa ta về nơi nào đó
 
 **Các cách thức để có thể triển khai như thế nào**
+
+![Pasted image 20241026210209.png](/img/user/Images-files/Pasted%20image%2020241026210209.png)
