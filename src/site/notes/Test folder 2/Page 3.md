@@ -3,7 +3,7 @@
 ---
 
 
-I want to link to [[Test folder for Vercel and Obsidian/Các thực hiện\|Các thực hiện]] [[Test folder for Vercel and Obsidian/Page 2\|Page 2]] [[Test folder 2/Page 3\|Page 3]] [[Test folder 2/Page 4\|page 4]]
+I want to link to [[Digital Garden - Publish/Digital Garden - Publish\|Digital Garden - Publish]] [[Digital Garden - Publish/Page 2\|Page 2]] [[Test folder 2/Page 3\|Page 3]] [[Test folder 2/Page 4\|page 4]]
 
 Bây giờ cần thực hiện gì ? 
 
