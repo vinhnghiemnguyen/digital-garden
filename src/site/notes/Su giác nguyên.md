@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/su-giac-nguyen/"}
+{"dg-publish":true,"permalink":"/su-giac-nguyen/","tags":["gardenEntry"]}
 ---
 
 
