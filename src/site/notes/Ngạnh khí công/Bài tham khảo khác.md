@@ -40,8 +40,6 @@ Nhưng Triết học phương Đông nhấn mạnh rằng chỉ luyện khí th�
 
 Tóm lại, Triết học phương Đông cho ta thấy một vòng tròn chặt chẽ: chí dẫn dắt khí, khí nuôi dưỡng công năng, và công năng khỏe mạnh lại củng cố chí. Luyện công không chỉ là rèn luyện cơ thể, mà là hành trình cân bằng giữa ba yếu tố này. Bạn thấy đấy, cái hay của nó nằm ở sự hài hòa và kiên trì – điều mà ai cũng có thể thử, chỉ cần hiểu rõ và bắt đầu.
 
-[
-
 ![May be an image of 1 person and practising yoga](https://scontent.fsgn8-3.fna.fbcdn.net/v/t39.30808-6/482013678_1285052755912659_7487401873205860281_n.jpg?stp=dst-jpg_p843x403_tt6&_nc_cat=106&ccb=1-7&_nc_sid=aa7b47&_nc_ohc=J7pkeoXgqXUQ7kNvgERP9zV&_nc_oc=Adh9GgQZzmR0j0EF7Jn7K4CpftJdJyx15aVXVTDSeUCom560_B4q1-0b7vUT6RELMAyUhH2qrXYXrwubd3wZbtQr&_nc_zt=23&_nc_ht=scontent.fsgn8-3.fna&_nc_gid=AJ46xuMIHLxCmjUP4lbh1uR&oh=00_AYEO_dS515KyGl2v_ySvDNl1CMmxZ_96Yw-1o2vnvGDV8A&oe=67D4D483)
 
 # Các học thuyết cơ bản phải sống động trong rèn luyện Khí Công 
