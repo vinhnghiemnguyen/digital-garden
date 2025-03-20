@@ -2,8 +2,8 @@
 {"dg-publish":true,"permalink":"/nganh-khi-cong/video-cac-bai/"}
 ---
 
-
-
+Chung 3 bài
+https://www.facebook.com/groups/khicongduongminhtuan/announcements
 
 
 
